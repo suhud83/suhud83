@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @suhud83
-- 👀 I’m interested in nft 
+- 👀 I’m interested in nft i am creator and collector nft 
 - 🌱 I’m currently learning creat and deploy owned nft on solana
 - 💞️ I’m looking to collaborate on project nft solana
 - 📫 How to reach me ...email me suhudsuhudi@gmail.com
